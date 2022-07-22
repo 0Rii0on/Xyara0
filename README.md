@@ -31,3 +31,5 @@
 - 📫 My newletters **xyaraischicken@gmail.com**
 
 - <strong>I'm AWS Certified with AWS Certified Developer – Associate </strong>
+
+- laisse Oxdoch#1965 tranquille il est protéger.
